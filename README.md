@@ -1,1 +1,1 @@
-# CuteBird🐤
+# CuteBird
